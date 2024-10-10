@@ -4,7 +4,12 @@
 - 💞️ Busco colaborar en: relaciones abiertas
 - 📫 Cómo contactarme: por whattsapp
 - 😄 Pronombres: como naci (osea hombre)
-- ⚡ Dato curioso:estoy pendejo
+- ⚡ Dato curioso:Guapo, poderoso, asombroso
+Muy hermoso, soy precioso, armonioso
+Un buen socio, misterioso, buena gente
+Detergente, muy majete, inteligente
+Nada ojete, irreverente, un exponente
+Muy perfecto es lo que soy
 
 <!---
 TurbidClient129/TurbidClient129 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

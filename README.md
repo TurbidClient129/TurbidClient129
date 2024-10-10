@@ -2,7 +2,7 @@
 - 👀 Me interesa: los videojuegos
 - 🌱 Actualmente estoy aprendiendo: lenguajes de programacion (php)
 - 💞️ Busco colaborar en: relaciones abiertas
-- 📫 Cómo contactarme: por whattsapp
+- 📫 Cómo contactarme: por whattsapp e instagram
 - 😄 Pronombres: como naci (osea hombre)
 - ⚡ Dato curioso:Guapo, poderoso, asombroso
 Muy hermoso, soy precioso, armonioso
